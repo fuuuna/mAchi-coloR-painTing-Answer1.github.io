@@ -1,1 +1,1 @@
-# mAchi-coloR-painTing-Answer1.github.io
+# mAchi-coloR-painTing-Answer.github.io
